@@ -1,4 +1,8 @@
-## Hi there 👋
+## This is discount63
+
+### 비밀의숲 보고싶다
+### 시뭑아!!!!
+### 모범검사 서동재~~!!!!!
 
 <!--
 **discount63/discount63** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
